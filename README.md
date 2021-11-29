@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BsaldanhaZ
-- 👀 I’m interested in ... increase my program skills
+- 👀 I’m interested in ... increase my computer programmer skills
 - 🌱 I’m currently learning ... Java and Python
 - 💞️ I’m looking to collaborate on ... Jr projects
 - 📫 How to reach me ... email bsaldanha1990@gmail.com or whatsapp 54 999517255
